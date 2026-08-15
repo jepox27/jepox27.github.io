@@ -1,0 +1,1 @@
+Jefrey Cervera — Web Developer & ICT Professional. Public-safe CV: no phone number, no unnecessary personal details, and no named references. Education: Union Christian College.
